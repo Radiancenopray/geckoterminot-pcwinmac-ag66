@@ -1,4 +1,4 @@
-# 
+# Inteligente geckoterminal sniper bot herramientas para Mac OS | Ligero geckoterminal sniper bot herramientas para PC Windows. Con estrategias de back-running y notificaciones de alerta — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
